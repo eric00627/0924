@@ -1,1 +1,1 @@
-readme hello,world!shiba is so cute.ugly
+readme hello,world!shiba is so cute.ugly curry
